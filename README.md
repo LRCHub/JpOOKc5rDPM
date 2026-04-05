@@ -1,0 +1,97 @@
+# LESLIE PARRISH – KILLING MY LOVE(EXTENDED ver.)
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:18.33] Killing my love
+[00:25.83] 
+[00:52.50] You're gonna destroy my love
+[00:54.97] With your actions, you destroy my heart
+[00:57.85] You give me always bad surprises, tell me, tell me why
+[01:00.92] You treat my feelings like a toy
+[01:16.92] 
+[01:03.70] Baby, make up, make up, make up
+[01:05.86] Your mind, it's time to wake up
+[01:07.41] They gave us just one life to live
+[01:09.97] Baby, love and love and love me
+[01:12.01] Love is what is worth it
+[01:13.66] The most important thing to give
+[01:29.66] 
+[01:16.08] But you're killing my love, and it will destroy me
+[01:19.59] But you're killing my love, my heart's disappointed
+[01:22.67] I'll love you forever, but please don't say never
+[01:25.70] I'll keep you remembered so deep in my heart
+[01:47.70] 
+[01:28.63] But you're killing my love, and it will destroy me
+[01:31.81] But you're killing my love, my heart's disappointed
+[01:35.01] A dream lasts forever if we dream together
+[01:38.08] I don't want to believe in love anymore
+[01:57.58] 
+[01:57.20] You're gonna destroy my life
+[01:59.55] I was thinking to become your wife
+[02:02.45] You give me million of your lies, so tell me, tell me why
+[02:05.55] You think that love is not a joy
+[02:21.55] 
+[02:08.35] Baby, make up, make up, make up
+[02:10.48] Your mind, it's time to wake up
+[02:12.02] They gave us just one life to live
+[02:14.42] Baby, love and love and love me
+[02:16.63] Love is what is worth it
+[02:18.18] The most important thing to give
+[02:34.18] 
+[02:20.64] But you're killing my love, and it will destroy me
+[02:24.10] But you're killing love, my heart's disappointed
+[02:27.22] I'll love you forever, but please don't say never
+[02:30.33] I'll keep you remembered so deep in my heart
+[02:52.33] 
+[02:33.28] But you're killing my love, and it will destroy me
+[02:36.48] But you're killing my love, my heart's disappointed
+[02:39.55] A dream lasts forever if we dream together
+[02:42.69] I don't want to believe in love anymore
+[03:02.19] 
+[03:01.73] You're gonna destroy my love
+[03:04.17] With your actions, you destroy my heart
+[03:06.96] You give me always bad surprises, tell me, tell me why
+[03:10.15] You treat my feelings like a toy
+[03:26.15] 
+[03:12.93] Baby, make up, make up, make up
+[03:15.05] Your mind, it's time to wake up
+[03:16.64] They gave us just one life to live
+[03:19.10] Baby, love and love and love me
+[03:21.26] Love is what is worth it
+[03:22.87] The most important thing to give
+[03:38.87] 
+[03:28.51] But you're killing my love, and it will destroy me
+[03:41.08] But you're killing my love, my heart's disappointed
+[03:44.15] A dream lasts forever if we dream together
+[03:47.21] I don't want to believe in love anymore
+[04:06.71] 
+[04:06.23] Killing my love (kill, kill, kill)
+[04:09.01] Killing my love (kill, kill, kill)
+[04:12.17] Killing my love (kill, kill, kill)
+[04:15.29] Killing my love
+[04:22.79] 
+[04:17.59] But you're killing my love, and it will destroy me
+[04:21.09] But you're killing my love, my heart's disappointed
+[04:24.12] A dream lasts forever if we dream together
+[04:27.24] I don't want to believe in love anymore
+[04:46.74] 
+[04:57.48] Baby, make up, make up, make up
+[04:59.65] Your mind, it's time to wake up
+[05:01.14] They gave us just one life to live
+[05:03.60] Baby, love and love and love me
+[05:05.79] Love is what is worth it
+[05:07.32] The most important thing to give
+[05:23.32] 
+[05:09.79] But you're killing my love, and it will destroy me
+[05:13.25] But you're killing my love, my heart's disappointed
+[05:16.42] I'll love you forever, but please don't say never
+[05:19.41] I'll keep your remembered so deep in my heart
+[05:41.91] 
+[05:22.32] But you're killing my love, and it will destroy me
+[05:25.59] But you're killing my love, my heart's disappointed
+[05:28.77] A dream lasts forever if we dream together
+[05:31.75] I don't want to believe in love anymore
+[05:51.25] 
+[06:15.04] Killing my love
+```
